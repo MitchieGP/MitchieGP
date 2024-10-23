@@ -5,6 +5,5 @@ I'm Mitchie Gaspar, a web developer based in the Philippines and a graphic desig
 If you want to connect, you can find me on the following platforms:
 - LinkedIn: [Mitchie Gaspar](https://www.linkedin.com/in/mitchie-gaspar-70040a234/)
 - Discord: mitchiesita
-- Facebook: [Mitchie Gaspar](https://www.facebook.com/Deckidu/)
 
 Thank you for taking the time to visit! 🌟
